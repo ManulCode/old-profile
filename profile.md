@@ -27,3 +27,7 @@
 <img src="https://github-readme-stats-anuraghazra1.vercel.app/api?username=manulcode&show_icons=true&include_all_commits=true&theme=dark&text_color=0dc6e3">
 
 
+
+
+
+Jєsl'и jas' vj'os gf w 15 hol, ju'l mat' uer' garbet, jэ nє zjnat' jto ty'ja dead inside, jэ zjnat' jto ty'ja dol'jaэb.
